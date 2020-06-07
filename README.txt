@@ -1,5 +1,3 @@
-# cubercube
-
 k3yz4
 shigtav base64 dec
 shey paroli gamoiyeneba est amitom vcvlit mass 1 ze da gamoaq flag
